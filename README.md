@@ -2,7 +2,7 @@
 - 👀 I’m interested in Anime
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on Anything
-- 📫 How to reach me (+91 94534 08789)Conjtact on telegram.
+- 📫 How to reach me (@The_Sketchy_Boy)Contact on telegram.
 
 <!---
 XxLightYagamixX/XxLightYagamixX is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
